@@ -1,6 +1,6 @@
 # Hi Everyone ! 
-I'am **Koko**.\
-[Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/agung-kurniawan-419721178/)).
+I'am **Koko**. \
+Follow me on [Linkedin](https://www.linkedin.com/in/agung-kurniawan-419721178/) if u interested. Thanks
  
 <p align="left">
 <a href="https://github.com/waksun0x00">
